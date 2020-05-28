@@ -1,0 +1,2 @@
+# emirey
+kazanmak
